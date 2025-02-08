@@ -7,7 +7,7 @@
 - 😄 mbti: infp/j
 - ⚡ Fun fact: Peaceful crazy
 - 🧠 skills: python,c,html,data processing,matlab....
-- 😻 Hope: Be rich🤑 Be stronger
-- 👿 No cry no bug no trouble
+- 😻 Hope: Be rich🤑 Be stronger suddenly
+- 👿 No cry no bug no error
 - 🏫 I studied AI in Korea university winter school in 2025(just for one month)
 - 🎓 I am working in ZheJiang University BinJiang Research institute
